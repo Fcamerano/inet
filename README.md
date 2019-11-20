@@ -1,2 +1,2 @@
 # inet
-rtbbrttrb
+para editar
